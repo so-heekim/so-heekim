@@ -1,4 +1,5 @@
 - Hi, I’m @so-heekim 👋
 - I’m interested in digital forensics 👀
 - I’m currently learning programing 🌱
+- Please visit my blog, too 🤗
 - If you want to contact me, email me 📫
