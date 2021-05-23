@@ -1,0 +1,4 @@
+- Hi, I’m @so-heekim 👋
+- I’m interested in digital forensics 👀
+- I’m currently learning programing 🌱
+- If you want to contact me, email me 📫
