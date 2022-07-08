@@ -4,3 +4,4 @@
 - Please visit my blog, too 🤗
   - https://blog.naver.com/feelksh7654
 - If you want to contact me, email me 📫
+  - sohee.sefo@gmail.com
